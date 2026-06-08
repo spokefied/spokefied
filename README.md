@@ -1,5 +1,5 @@
 
-![](https://files.catbox.moe/0ifb5a.png)
+![](https://files.catbox.moe/6nt1s3.png)
 ⠀⠀ ⠀⠀𓏼♡֯ ̣̣̥ ̣ 🌈　 ͡꒱͏ im the **director**
  　　i **direct** things
    
