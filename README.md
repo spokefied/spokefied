@@ -7,3 +7,6 @@
 
 ⠀⠀ 𓈒 
 ⠀⠀⠀ | ͟͡ ꒱𓏼꫶  ask *b4 ins*p  𓈒ྐ𖥽ྀིི𓈒݂݂ no copying
+
+<img src="https://files.catbox.moe/20it0y.jpg" width= "100" heights= "150" alt=image> my uu!spoke design, i love him so much
+I'll put my ls design too later
