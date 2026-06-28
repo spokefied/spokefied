@@ -1,11 +1,10 @@
+banner wip
+##   ݂ ㅤㅤinfosㅤㅤ ۫
+꒱꒱  do not copy any of my work/skins, **ask** b4 taking insp
 
-![](https://files.catbox.moe/6nt1s3.png)
-⠀⠀ ⠀⠀𓏼♡֯ ̣̣̥ ̣ 🌈　 ͡꒱͏ im the **director**
- 　　i **direct** things
-   
-⠀⠀  ᩧ¦⩊ ֪֪݃𓏼꫶  **spo**ke  ֪֪֪.  ּ֯ ͜͜   **fi**es  ᕀ۫𓂋᜔˖
+꒱꒱  c+h is always encouraged+do freely, only when i have it on my name
 
-⠀⠀ 𓈒 
-⠀⠀⠀ | ͟͡ ꒱𓏼꫶  ask *b4 ins*p  𓈒ྐ𖥽ྀིི𓈒݂݂ no copying
+꒱꒱  most of my skins that i made esp myct skin r based of my own design
 
-
+( ˶°ㅁ°) !! ㅤㅤ  **_Mostly offtab/busy_**
+ㅤㅤㅤㅤ check my strawpage(semi wip) for more infos
